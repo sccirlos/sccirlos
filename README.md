@@ -1,4 +1,4 @@
-### hi i'm sonya! 🌀
+### sonya 🌀 
 
 <!--
 **sccirlos/sccirlos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
